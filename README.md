@@ -1,4 +1,4 @@
-### Hi there! I am Sarth afinal year student at IIT Guwahati 👋
+### Hi there! I am Sarth, a final year student at IIT Guwahati 👋
 
 
 - 🌱 Along with working in tech projects, I’m currently also learning a lot about Product Management and Business Strategy
